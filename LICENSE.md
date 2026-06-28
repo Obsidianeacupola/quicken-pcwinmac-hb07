@@ -1,4 +1,4 @@
-# 
+# Novo Quicken complementos para Mac OS | Atualizado Quicken complementos para PC Windows. Com faturamento recorrente e branding personalizado — otimizado para máximo desempenho em cada plataforma.
 
 
 
